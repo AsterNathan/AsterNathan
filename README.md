@@ -1,0 +1,17 @@
+👋 Hello, I'm Aster Nathan, a certified Business Analyst with a strong foundation in biotechnology. I'm passionate about leveraging data-driven insights to empower businesses and make informed decisions.
+
+🔍 About Me:
+- 🎓 Biotechnology Graduate: I hold a degree in Biotechnology, providing me with a unique perspective that combines science and analytics.
+- 🎖️ Certified Analyst: Recently certified in Business Analysis from IIT-Madras' GUVI Geek Networks, I'm equipped with the latest industry techniques and best practices.
+- 💼 Driven by Data: I thrive on dissecting data, identifying trends, and developing strategies that propel organizations forward.
+
+🌐 What You'll Find Here:
+- 📈 Data Analysis: Explore my projects where I analyze data to unearth actionable insights and enhance decision-making.
+- 📊 Business Transformation: I specialize in translating data into innovative solutions, streamlining processes, and fostering growth.
+- 📚 Continuous Learning: I'm committed to staying at the forefront of business analysis and biotechnology trends.
+
+🤝 Let's Connect:
+- 🌐 LinkedIn: https://www.linkedin.com/in/asternathan/
+- 📬 Email: asternathan95@gmail.com
+
+🌟 Join me on my journey as I merge my biotechnology background with business acumen to drive meaningful change. Together, we can harness the power of data to unlock new opportunities and shape a brighter future. 🌌
